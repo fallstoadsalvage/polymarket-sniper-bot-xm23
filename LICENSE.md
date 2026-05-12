@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket premium Automation Script: portfolio-optimization & volatility-detection, the #1 automation-script. Includes portfolio-optimization
 
 
 
